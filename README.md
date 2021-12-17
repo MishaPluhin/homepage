@@ -1,1 +1,1 @@
-🧙Hocus-pocus!
+https://github.com/MishaPluhin/homepage/blob/main/index.html
